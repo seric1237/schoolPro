@@ -9,7 +9,7 @@
 
 
 
-[꽃감이 목소리는 전설이다 ](https://www.youtube.com/watch?v=BvuufDyVPz8)
+[https://i.ytimg.com/vi/BvuufDyVPz8/maxresdefault.jpg](https://www.youtube.com/watch?v=BvuufDyVPz8)
 ![](https://i.ytimg.com/vi/BvuufDyVPz8/maxresdefault.jpg)
 
 
