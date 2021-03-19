@@ -20,4 +20,4 @@
 ![ㅎㅇ](https://github.com/seric1237/schoolPro/blob/main/img.jpg.jpg?raw=true)  
 
 
-[][](https://i.ytimg.com/vi/BvuufDyVPz8/maxresdefault.jpg)](https://www.youtube.com/watch?v=BvuufDyVPz8)
+[][](https://i.ytimg.com/vi/BvuufDyVPz8/maxresdefault.jpg)(https://www.youtube.com/watch?v=BvuufDyVPz8)
